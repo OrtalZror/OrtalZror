@@ -6,4 +6,6 @@
 
 🌐 Collaboration and Growth: I firmly believe that the best learning happens through collaboration. Thriving in team environments, I relish meaningful discussions and idea-sharing
 
-📫 Contact me: You can reach me via my email:ortal89232.com
+📫 Contact me: You can reach me via my linkedin: https://www.linkedin.com/in/ortalzror
+
+
